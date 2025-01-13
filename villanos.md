@@ -2,4 +2,4 @@
 
 * Dr. Doom
 * Red Skull
-* Dra. Polidor
+* Capitan Americalp
